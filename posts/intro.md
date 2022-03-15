@@ -11,7 +11,7 @@ Della.
 
 **What**
 
-I code for Microsoft. I dance for the Seahawks. Been in crypto since 2017. NFT collector because art is cool. Web3 developer.
+I code. I dance. Been in crypto since 2017. NFT collector because art is cool. Web3 developer.
 
 **When**
 
